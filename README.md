@@ -1,1 +1,1 @@
-https://amazing-allen-9cc838.netlify.app
+https://goofy-kare-6ff2ec.netlify.app
